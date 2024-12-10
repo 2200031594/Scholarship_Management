@@ -1,1 +1,0 @@
-# Scholarship_Management
